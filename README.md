@@ -1,7 +1,7 @@
 # Danzaiyun
 合理的价格，更强的体验
 
-最新地址：[蛋仔云](https://tzdaohang.com/sites/393.html)
+最新地址：[蛋仔云](https://uu.xn--9kq2f266n.space/#/register?code=D0FAz5AN)
 
 ## 简介
 
